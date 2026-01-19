@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently participating in hackathon and exploring my knowledge criteria 
+I am currently participating in hackathons and enhance my learning criteria 
 
 
 ## 🌐 Social media 
