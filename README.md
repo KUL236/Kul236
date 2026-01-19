@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently participating in hackathons and enhance my learning criteria 
+Learning, building, and growing in technology.
 
 
 ## 🌐 Social media 
